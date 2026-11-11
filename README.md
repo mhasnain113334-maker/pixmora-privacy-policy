@@ -1,0 +1,1 @@
+# pixmora-privacy-policy
